@@ -2,7 +2,7 @@
 - 👀 I’m interested in **technology-driven business models, fintech, and sustainable supply chain innovation**.  
 - 🌱 I’m currently learning **web development, data analytics, and AI integration for business decision-making**.  
 - 💞️ I’m looking to collaborate on **projects that blend entrepreneurship, financial strategy, and technology to create real-world impact**.  
-- 📫 Reach me at [LinkedIn](https://www.linkedin.com/in/verril-jovan-matthew-539583227/) or [Email](mailto:verrilmatthew@gmail.com).  
+- 📫 Reach me at [LinkedIn](https://www.linkedin.com/in/verril-jovan-matthew-539583227/) or [Email](mailto:verril67@gmail.com).  
 - 😄 Pronouns: he/him  
 - ⚡ Fun fact: **I’m an all-rounded person who loves learning new things, values efficiency, and adapts quickly to the fast-changing world.**
 
